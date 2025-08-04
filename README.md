@@ -2,3 +2,5 @@
  
 [琴弓](https://shop.kurosawagakki.com/items/2857568)
 
+[音乐平台](https://www.tunecore.co.jp/artists?id=157536)
+
