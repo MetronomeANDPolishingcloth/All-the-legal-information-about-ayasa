@@ -6,3 +6,5 @@
 [live](https://b23.tv/bY7IsLM)
 
 [Ayasa herself practice at home](https://b23.tv/535buFB)
+
+[其他成员](https://b23.tv/dAOft0U)
